@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Manish Kumar.
-- 👀 I’m interested in Meet New Peoples.
+- 👀 I’m interested in Learning New Technology.
 - 🌱 I’m currently learning Full Stack Developer Course from Newton School.
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can Contact Us Email - strugglelifemanish@gmail.com and Mobile No - 8507999988.
